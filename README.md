@@ -1,1 +1,1 @@
-# Khnun-s-note
+# Khnun notes
